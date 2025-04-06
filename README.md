@@ -18,7 +18,3 @@ Here are some ideas to get you started:
 
 hi guys,
 
-i like 
-
-
-you hihi
